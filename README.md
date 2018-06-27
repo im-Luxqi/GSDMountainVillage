@@ -1,2 +1,2 @@
 # GSDMountainVillage
-it is my homo
+it is my home
